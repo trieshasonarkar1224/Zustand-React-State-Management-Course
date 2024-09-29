@@ -73,7 +73,4 @@ Enlisted below are the things I learnt today. 👇
 <br>
 
 
-✮[12]Outro
-
-<br>
 
